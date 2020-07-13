@@ -1,4 +1,4 @@
-# Hi there!! :hand_splayed:
+# Hi there!!
 
 ## profiles
 
